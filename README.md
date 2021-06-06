@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @V1NR-4LF4KYN or James
+- 👋 Hi, I’m @p4zzz or James
 - 👀 I’m interested in loads of stuff.
 - 🌱 I’m currently learning Python and C++
 - 📫 How to reach me E-Mail: james066@gmx.de or caturix29@gmail.com
